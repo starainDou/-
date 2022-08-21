@@ -10,3 +10,11 @@
 10. I‘m tired. 我累了
 11. Old habits die hard. 积习难改
 12. Never say die. 永不言败
+13. That sounds great. 听起来棒极了
+14. You are the best. 你是最棒的 
+15. You are so good. 你人真好
+16. What he [wɔdi:]
+17. What has [wɔdəz]
+18. Should have [ʃudəv]
+19. Back here [bækir]
+20. Is he [izi:]
